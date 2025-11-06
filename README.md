@@ -1,8 +1,8 @@
 # SWIPE WARS™
 Fast-Dealing Digital Sabotage Game
- ®Em’ Table 2 Boys
- 8+
- 2-3 Players
+®Em’ Table 2 Boys
+8+
+2-3 Players
 
 ## TOP TIPS
 To keep your game short and savage:
